@@ -1,4 +1,4 @@
-# Delta Executor Latest Version Download for Android & iOS e MacOS em breve
+Delta Executor Latest Version Download for Android & iOS and MacOS Coming Soon
 
 [![Delta Executor - Editor Delta em um celular Android](https://deltaexeutor.com.br/assets/images/hero-home.webp)](https://deltaexeutor.com.br/)
 
